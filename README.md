@@ -1,16 +1,15 @@
-## Hi there 👋
+boas vindas
 
-<!--
-**CarlosHenriqueSalvadego/CarlosHenriqueSalvadego** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**carlos henrique**
 
-Here are some ideas to get you started:
+estou estudando na [Alura](https://cursos.alura.com.br/loginForm?srsltid=AfmBOorU-BpbzWoTRKypknwc7GrTZLKVjMqwD6xRXU283ygOB8OICIQ4)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+eu adoro estudar, adoro dormir, adoro tudo
+
+gosto de ficar sussegadao, gosto ler, gosto cozinhar, gosto de aprender coias novas
+
+praticar esporte, assistir filme e series
+
+
+![](
