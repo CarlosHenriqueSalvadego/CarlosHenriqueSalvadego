@@ -12,4 +12,11 @@ gosto de ficar sussegadao, gosto ler, gosto cozinhar, gosto de aprender coias no
 praticar esporte, assistir filme e series
 
 
-![](
+![](https://media.tenor.com/dDyK9BklUh4AAAAM/super-victor-svu-comics.gif)
+
+
+![](https://media.tenor.com/MCBkr6dWLkUAAAAM/corinthians-rodrigo-garro.gif)
+
+
+
+
